@@ -72,7 +72,7 @@ jie shu | to end
 
 # dong wu - ding yi zhong wen
 
-*mao*
+**mao**
 ```
 mao hong hong
 bi yi zhi gou xiao
@@ -80,7 +80,7 @@ bi yi zhi lao shu da
 bi yi ge ren er pan jian zhai 
 ```
 
-*yang*
+**yang**
 ```
 peng song
 bai se
