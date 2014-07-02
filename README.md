@@ -3,7 +3,8 @@ zhongwen
 
 Wo xie zhong wen ^_^
 
-# Ding yi | Ying wen
+# Ding yi - Ying wen
+
 Zhong Wen | Ying wen
 |---------| ---------
 hao can a | how tragic
@@ -69,24 +70,15 @@ he | and (objects)
 er | and (conjunction)
 jie shu | to end
 
-# dong wu | ding yi zhong wen
-mao {
+# dong wu - ding yi zhong wen
 
+*mao*
     mao hong hong
-
     bi yi zhi gou xiao
-
     bi yi zhi lao shu da
-
     bi yi ge ren er pan jian zhai 
-}
 
-yang {
-
+*yang*
     peng song
-
     bai se
-
     bi yi zhe gou shao wei da
-
-}
