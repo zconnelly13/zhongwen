@@ -28,6 +28,12 @@ Yang shuo, "Shan Yang! Wo de lao xiong! Ni you ji shu"
 Mao: -_-
 Shan Yang hui da, "Xie Xie :)"
 Yang shuo, "Yao bu yao yi bei zi ka fei?"
-Mao jiao, "Ta pa wo de jia er jing ka fei ma!?!?!?"
+Mao jiao, "Ta pa wo de jia yi hou jing ka fei ma!?!?!?"
 Yang hui da, "Yes."
 Mao: (╯°□°）╯︵ ┻━┻
+Yang: (^_^)
+Shan Yang: O_o
+Shan Yang kan yi zhi lao shu yi hou zhua zhu le ta.
+Shan Yang jing lao shu zai Mao, "You bu you zhe ge?"
+Mao hui da, "... xie xie."
+Mao: ^_^
