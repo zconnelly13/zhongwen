@@ -69,3 +69,4 @@ na | to pick up / grab
 he | and (objects)
 er | and (conjunction)
 jie shu | to end
+wo me fa geng ming que | I could not be more clear
