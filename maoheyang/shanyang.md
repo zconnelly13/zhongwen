@@ -67,7 +67,7 @@ Shan Yang jiao, "wo yao kan yi zhi gui"
 Mao: (O_o)
 Mao shuo, "Ni bu ying gai zou jin lin kan yi zhi gui. bi yi zhi xiong da! bi si wang ke pa. bi Yang nan kan." 
 Yang: -_-
-Shan Yang hui da, "yao kan gui."
+Shan Yang hui da, "yao kan yi zhi gui."
 Shan Yang pao jin lin.
 Mao he Yang deng yi fen.
 Mao he Yang deng ta yi fen.
