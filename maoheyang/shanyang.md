@@ -91,3 +91,23 @@ Yang shuo, "Mao shi pang wa wa."
 da Xiong Mao hui zai lin.
 chong Mao hen lan se.
 Mao he Yang he Shan Yang ji xu zou zai Shan Yang de jia.
+
+Shi wan shang.
+Mao he Yang he Shan Yang lei le.
+Mao shuo, 'xiang yao shui'
+Yang hui da 'hao de. wo men ying gai shui.'
+Shan Yang jiao, 'kan! yin!'
+Mao jiao, 'Ooooooh ta zhang de hen mei!'
+Shan Yang pao zai cao ping zhua yin.
+Yang xiao le. Yang ye pao zai cao ping zhua yin.
+Mao tan chi. Mao jiao, 'zhen me hui shi!?!?'
+Yang: \(^o^)/
+Shan Yang: \(^o^)/
+Mao: -_-||
+gen Yang he Shan Yang Mao pao zai cao ping.
+Shan Yang jiao, 'wo zhua zhu le yi zhi yin! wo zhua zhu le yi zhi yin!'
+Yang hui da, 'wo zhua zhu le ba yin'
+Shan Yang: -.-
+Yang: :p
+Mao shuo, 'Tien zhang de hen mei'
+zai cao ping Mao he Yang he Shan Yang an xie.
