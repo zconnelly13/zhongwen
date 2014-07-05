@@ -111,3 +111,5 @@ Shan Yang: -.-
 Yang: :p
 Mao shuo, 'Tien zhang de hen mei'
 zai cao ping Mao he Yang he Shan Yang an xie.
+
+Yang jiao, "bei shang!!!"
