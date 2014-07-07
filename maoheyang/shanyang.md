@@ -24,7 +24,7 @@ Shan Yang hui da, "ni hao! (^_^) wo zheng zai pa zhe ke shu!"
 Mao: (>.<)
 Mao shuo, "zhe ke shu shi wo de jia!!!"
 Shan Yang pa xia lai le.
-Yang shuo, "Shan Yang! wo de lao xiong! ni you hen duo ji neng"
+Yang shuo, "Shan Yang! wo de lao xiong! ni you hen duo ji neng, ni hen niu bi."
 Mao: (-_-)
 Shan Yang hui da, "xie xie :)"
 Yang shuo, "yao bu yao yi bei ka fei?"
@@ -42,7 +42,7 @@ Mao: (^_^)
 Mao shuo, "zhu zai na li?"
 Shan Yang hui da, "wo gen wo de gou zhu zai 'gou he lang' shan"
 Yang wen, "gou gou jiao shen me?"
-Shan Yang hui da, "wo de gou jiao 'Lu Se'. ni men yao bu yao lai wo jia wan?"
+Shan Yang hui da, "wo de gou jiao 'Lü Se'. ni men yao bu yao lai wo jia wan?"
 Mao wen, "'gou he lang' shan zai na li?"
 Shan Yang hui da, "hen yuan"
 Mao shuo, "hao de. ming tian wo men zou dao ni de jia :)"
