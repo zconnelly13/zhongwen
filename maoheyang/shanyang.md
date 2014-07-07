@@ -37,6 +37,7 @@ Shan Yang kan dao yi zhi lao shu ran hou zhua zhu le ta.
 Shan Yang jing Mao zhe zhi lao shu, "yao bu yao zhe ge?"
 Mao: ...
 Mao jie shou le, "xie xie..."
+Mao chang le yi kou.
 Mao: ^_^
 Mao shuo, "zai na li ni zhu?"
 Shan Yang hui da, "wo gen wo de gou zhu zai 'gou he lang' shan"
