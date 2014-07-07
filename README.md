@@ -70,3 +70,4 @@ he | and (objects)
 er | and (conjunction)
 jie shu | to end
 wo me fa geng ming que | I could not be more clear
+zui qi ma | at least (Mao shuo, "zhi qi ma bu chi cao")
