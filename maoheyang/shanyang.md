@@ -42,7 +42,7 @@ Mao: (^_^)
 Mao shuo, "zhu zai na li?"
 Shan Yang hui da, "wo gen wo de gou zhu zai 'gou he lang' shan"
 Yang wen, "gou gou jiao shen me?"
-Shan Yang hui da, "jiao wo de gou 'Lu Se'. ni men yao bu yao kan wo de jia?"
+Shan Yang hui da, "wo de gou jiao 'Lu Se'. ni men yao bu yao lai wo jia wan?"
 Mao wen, "'gou he lang' shan shi na li?"
 Shan Yang hui da, "yuan bei"
 Mao shuo, "hao de. ming tian wo men zou zai ni de jia :)"
