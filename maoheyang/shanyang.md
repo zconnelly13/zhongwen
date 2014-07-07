@@ -8,8 +8,8 @@ Yang hui da, "chi yi zhi lao shu!?!?!? hao can a. 囧."
 Mao: (-_-)
 Mao shuo, "zui qi ma wo bu chi cao"
 Yang: (-_-)
-Mao da Yang.
 Yang da Mao.
+Mao da Yang.
 Mao: ...(-_-)
 Yang: ...(-_-)
 Mao shuo, "deng yi deng... gang cai you me you ting dao?"
