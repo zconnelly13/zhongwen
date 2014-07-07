@@ -72,3 +72,4 @@ jie shu | to end
 wo me fa geng ming que | I could not be more clear
 zui qi ma | at least (Mao shuo, "zhi qi ma bu chi cao")
 zhen me hui shi? | what is this happening!?!? / a polite "wtf"
+lao xiong | bro
