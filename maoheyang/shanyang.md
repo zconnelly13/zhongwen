@@ -12,9 +12,9 @@ Yang da Mao.
 Mao da Yang.
 Mao: ...(-_-)
 Yang: ...(-_-)
-Mao shuo, "deng yi deng... gang cai you me you ting dao?"
+Mao shuo, "deng yi deng... gang cai you me you ting dao ne ge?"
 Yang shuo, "shen me?" 
-Mao you shuo, "gang cai you me you ting dao?"
+Mao you shuo, "gang cai you me you ting dao ne ge?"
 Mao de jia zhen.
 Mao jiao, "zen me hui shi?"
 Mao he yang zou zai cao ping.
