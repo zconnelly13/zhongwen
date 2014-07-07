@@ -39,7 +39,7 @@ Mao: ...
 Mao jie shou le, "xie xie..."
 Mao chang le yi kou.
 Mao: (^_^)
-Mao shuo, "zai na li ni zhu?"
+Mao shuo, "zhu zai na li?"
 Shan Yang hui da, "wo gen wo de gou zhu zai 'gou he lang' shan"
 Yang wen, "jiao ni de gou shen me?"
 Shan Yang hui da, "jiao wo de gou 'Lu Se'. ni men yao bu yao kan wo de jia?"
