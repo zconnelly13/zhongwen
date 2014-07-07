@@ -22,7 +22,7 @@ Mao he yang kan dao yi zhi Shan Yang zheng zai pa Mao de shu.
 Yang shuo, "lao xiong! ni zui jin hao ma?"
 Shan Yang hui da, "ni hao! (^_^) wo zheng zai pa zhe ke shu!"
 Mao: (>.<)
-Mao shuo, "zhe ge shu shi wo de jia!!!"
+Mao shuo, "zhe ke shu shi wo de jia!!!"
 huang Shan Yang xia shu.
 Yang shuo, "Shan Yang! wo de lao xiong! ni you hen duo ji neng"
 Mao: -_-
