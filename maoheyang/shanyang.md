@@ -34,7 +34,7 @@ Mao: (╯°□°）╯︵ ┻━┻
 Yang: (^_^)
 Shan Yang: O_o
 Shan Yang kan dao yi zhi lao shu ran hou zhua zhu le ta.
-Shan Yang jing lao shu zai Mao, "yao bu yao zhe ge?"
+Shan Yang jing Mao zhe zhi lao shu, "yao bu yao zhe ge?"
 Mao hui da, "... xie xie."
 Mao: ^_^
 Mao shuo, "zai na li ni zhu?"
