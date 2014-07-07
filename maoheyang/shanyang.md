@@ -20,7 +20,7 @@ Mao jiao, "zen me hui shi?"
 Mao he yang pao dao wai mian de cao ping.
 Mao he yang kan dao yi zhi Shan Yang zheng zai pa Mao de shu.
 Yang shuo, "lao xiong! ni zui jin hao ma?"
-Shan Yang hui da, "ni hao! (^_^) wo pa zhe ge shu!"
+Shan Yang hui da, "ni hao! (^_^) wo zheng zai pa zhe ke shu!"
 Mao: (>.<)
 Mao shuo, "zhe ge shu shi wo de jia!!!"
 huang Shan Yang xia shu.
