@@ -17,7 +17,7 @@ Yang shuo, "shen me?"
 Mao you shuo, "gang cai you me you ting dao ne ge?"
 Mao de jia zhen le ji ci.
 Mao jiao, "zen me hui shi?"
-Mao he yang zou zai cao ping.
+Mao he yang pao dao wai mian de cao ping.
 Mao he yang kan yi zhi Shan Yang pa Mao de shu.
 Yang shuo, "lao xiong! ni zui jin hao ma?"
 Shan Yang hui da, "ni hao! (^_^) wo pa zhe ge shu!"
