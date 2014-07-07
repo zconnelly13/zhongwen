@@ -12,35 +12,35 @@ Mao da Yang.
 Yang da Mao.
 Mao: ...(-_-)
 Yang: ...(-_-)
-Mao shuo, "Deng yi deng... gang cai you me you ting dao?"
-Yang shuo, "Shen me?" 
-Mao you shuo, "Gang cai you me you ting dao?"
+Mao shuo, "deng yi deng... gang cai you me you ting dao?"
+Yang shuo, "shen me?" 
+Mao you shuo, "gang cai you me you ting dao?"
 Mao de jia zhen.
-Mao jiao, "Zen me hui shi?"
+Mao jiao, "zen me hui shi?"
 Mao he yang zou zai cao ping.
 Mao he yang kan yi zhi Shan Yang pa Mao de shu.
-Yang shuo, "Lao xiong! Ni zuo shi me?"
-Shan Yang hui da, "Ni hao! (^_^) Wo pa zhe ge shu!"
+Yang shuo, "lao xiong! ni zuo shi me?"
+Shan Yang hui da, "ni hao! (^_^) wo pa zhe ge shu!"
 Mao: (>.<)
-Mao shuo, "Zhe ge shu shi wo de jia!!!"
+Mao shuo, "zhe ge shu shi wo de jia!!!"
 huang Shan Yang xia shu.
-Yang shuo, "Shan Yang! Wo de lao xiong! Ni you ji shu"
+Yang shuo, "Shan Yang! wo de lao xiong! ni you ji shu"
 Mao: -_-
-Shan Yang hui da, "Xie Xie :)"
-Yang shuo, "Yao bu yao yi bei zi ka fei?"
-Mao jiao, "Ta pa wo de jia yi hou jing ka fei ma!?!?!?"
-Yang hui da, "Yes."
+Shan Yang hui da, "xie xie :)"
+Yang shuo, "yao bu yao yi bei zi ka fei?"
+Mao jiao, "ta pa wo de jia yi hou jing ka fei ma!?!?!?"
+Yang hui da, "yes."
 Mao: (╯°□°）╯︵ ┻━┻
 Yang: (^_^)
 Shan Yang: O_o
 Shan Yang kan yi zhi lao shu yi hou zhua zhu le ta.
-Shan Yang jing lao shu zai Mao, "You bu you zhe ge?"
+Shan Yang jing lao shu zai Mao, "yao bu yao zhe ge?"
 Mao hui da, "... xie xie."
 Mao: ^_^
-Mao shuo, "Zai na li ni zhu?"
-Shan Yang hui da, "Wo gen wo de gou zhu zai 'gou he lang' shan"
-Yang wen, "Jiao ni de gou shen me?"
-Shan Yang hui da, "Jiao wo de gou 'Lu se'. Ni men yao bu yao kan wo de jia?"
+Mao shuo, "zai na li ni zhu?"
+Shan Yang hui da, "wo gen wo de gou zhu zai 'gou he lang' shan"
+Yang wen, "jiao ni de gou shen me?"
+Shan Yang hui da, "jiao wo de gou 'Lu Se'. ni men yao bu yao kan wo de jia?"
 Mao wen, "'gou he lang' shan shi na li?"
 Shan Yang hui da, "yuan bei"
 Mao shuo, "hao de. ming tian wo men zou zai ni de jia :)"
