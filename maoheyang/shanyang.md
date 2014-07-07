@@ -25,20 +25,20 @@ Mao: (>.<)
 Mao shuo, "zhe ke shu shi wo de jia!!!"
 Shan Yang pa xia lai le.
 Yang shuo, "Shan Yang! wo de lao xiong! ni you hen duo ji neng"
-Mao: -_-
+Mao: (-_-)
 Shan Yang hui da, "xie xie :)"
 Yang shuo, "yao bu yao yi bei ka fei?"
 Mao jiao, "ta pa wo de jia yi hou ni hai jing ta ka fei!?!?!?"
 Yang hui da, "yes."
 Mao: (╯°□°）╯︵ ┻━┻
 Yang: (^_^)
-Shan Yang: O_o
+Shan Yang: (O_o)
 Shan Yang kan dao yi zhi lao shu ran hou zhua zhu le ta.
 Shan Yang jing Mao zhe zhi lao shu, "yao bu yao zhe ge?"
 Mao: ...
 Mao jie shou le, "xie xie..."
 Mao chang le yi kou.
-Mao: ^_^
+Mao: (^_^)
 Mao shuo, "zai na li ni zhu?"
 Shan Yang hui da, "wo gen wo de gou zhu zai 'gou he lang' shan"
 Yang wen, "jiao ni de gou shen me?"
