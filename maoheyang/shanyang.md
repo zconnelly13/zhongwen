@@ -18,12 +18,12 @@ Mao you shuo, "gang cai you me you ting dao ne ge?"
 Mao de jia zhen le ji ci.
 Mao jiao, "zen me hui shi?"
 Mao he yang pao dao wai mian de cao ping.
-Mao he yang kan dao yi zhi Shan Yang zheng zai pa Mao de shu.
+Mao he yang kan dao yi zhi huang Shan Yang zheng zai pa Mao de shu.
 Yang shuo, "lao xiong! ni zui jin hao ma?"
 Shan Yang hui da, "ni hao! (^_^) wo zheng zai pa zhe ke shu!"
 Mao: (>.<)
 Mao shuo, "zhe ke shu shi wo de jia!!!"
-huang Shan Yang xia shu.
+Shan Yang xia shu.
 Yang shuo, "Shan Yang! wo de lao xiong! ni you hen duo ji neng"
 Mao: -_-
 Shan Yang hui da, "xie xie :)"
