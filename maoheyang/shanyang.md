@@ -27,7 +27,7 @@ Shan Yang pa xia lai le.
 Yang shuo, "Shan Yang! wo de lao xiong! ni you hen duo ji neng"
 Mao: -_-
 Shan Yang hui da, "xie xie :)"
-Yang shuo, "yao bu yao yi bei zi ka fei?"
+Yang shuo, "yao bu yao yi bei ka fei?"
 Mao jiao, "ta pa wo de jia yi hou jing ka fei ma!?!?!?"
 Yang hui da, "yes."
 Mao: (╯°□°）╯︵ ┻━┻
