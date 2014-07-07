@@ -47,7 +47,7 @@ Mao wen, "'gou he lang' shan zai na li?"
 Shan Yang hui da, "hen yuan"
 Mao shuo, "hao de. ming tian wo men zou dao ni de jia :)"
 Mao he Yang he Shan Yang: \(^_^)/
-yi hou, dao jiu qin shi jian, Mao he Yang he Shan Yang da you xi.
+hou lai, Mao he Yang he Shan Yang da you xi da dao shui zhao le.
 dai xu...
 
 
