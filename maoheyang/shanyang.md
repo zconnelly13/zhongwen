@@ -15,7 +15,7 @@ Yang: ...(-_-)
 Mao shuo, "deng yi deng... gang cai you me you ting dao ne ge?"
 Yang shuo, "shen me?" 
 Mao you shuo, "gang cai you me you ting dao ne ge?"
-Mao de jia zhen.
+Mao de jia zhen le.
 Mao jiao, "zen me hui shi?"
 Mao he yang zou zai cao ping.
 Mao he yang kan yi zhi Shan Yang pa Mao de shu.
