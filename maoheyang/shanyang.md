@@ -19,12 +19,12 @@ Mao de jia zhen.
 Mao jiao, "zen me hui shi?"
 Mao he yang zou zai cao ping.
 Mao he yang kan yi zhi Shan Yang pa Mao de shu.
-Yang shuo, "lao xiong! ni zuo shi me?"
+Yang shuo, "lao xiong! ni zui jin hao ma?"
 Shan Yang hui da, "ni hao! (^_^) wo pa zhe ge shu!"
 Mao: (>.<)
 Mao shuo, "zhe ge shu shi wo de jia!!!"
 huang Shan Yang xia shu.
-Yang shuo, "Shan Yang! wo de lao xiong! ni you ji shu"
+Yang shuo, "Shan Yang! wo de lao xiong! ni you hen duo ji neng"
 Mao: -_-
 Shan Yang hui da, "xie xie :)"
 Yang shuo, "yao bu yao yi bei zi ka fei?"
@@ -46,6 +46,7 @@ Shan Yang hui da, "yuan bei"
 Mao shuo, "hao de. ming tian wo men zou zai ni de jia :)"
 Mao he Yang he Shan Yang: \(^_^)/
 yi hou, dao jiu qin shi jian, Mao he Yang he Shan Yang da you xi.
+dai xu...
 
 
 xia tian, san peng you kai shi zou zai 'gou he lang' shan.
