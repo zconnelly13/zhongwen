@@ -33,7 +33,7 @@ Yang hui da, "yes."
 Mao: (╯°□°）╯︵ ┻━┻
 Yang: (^_^)
 Shan Yang: O_o
-Shan Yang kan dao yi zhi lao shu yi hou zhua zhu le ta.
+Shan Yang kan dao yi zhi lao shu ran hou zhua zhu le ta.
 Shan Yang jing lao shu zai Mao, "yao bu yao zhe ge?"
 Mao hui da, "... xie xie."
 Mao: ^_^
