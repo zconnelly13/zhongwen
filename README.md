@@ -73,3 +73,18 @@ wo me fa geng ming que | I could not be more clear
 zui qi ma | at least (Mao shuo, "zhi qi ma bu chi cao")
 zhen me hui shi? | what is this happening!?!? / a polite "wtf"
 lao xiong | bro
+
+Flash Card Example Sentences
+Ji shou zhi? Wu.
+几手指？五。
+yi ge dian hua bi yi ge shou ji cha bu duo.
+一个电话比一个手机差不多。
+mao hen he :D
+猫很和。
+cha hen hao he.
+茶很好喝。
+wo mai yi ge ti xu.
+我买一个体恤。
+wo lai jia
+我来家。
+wo shi qian mai yi ge ti xu.
